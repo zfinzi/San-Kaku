@@ -1,1 +1,1 @@
-"# San-Kaku" 
+Welcome to San-Kaku
